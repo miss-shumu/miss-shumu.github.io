@@ -14,5 +14,9 @@ Shu-mu has a 6-year-old boy and elderly parents. Shu-mu’s family loves Shu-mu 
 
 Rest in peace, Shu-mu!
 
+Shu-mu’s friends and colleagues.
+
 ### Contact Information
 If you know Shu-mu and want to add any story about Shu-mu, please contact us through email `miss-shumu@proton.me`.
+
+This page is still under construction.
