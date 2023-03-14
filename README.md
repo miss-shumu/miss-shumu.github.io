@@ -1,4 +1,4 @@
-# We miss you, Shu-mu.
+# To memorize Shu-mu
 
 This github page is used to memorize our dear friend and colleague **Shu-mu Du**, who was a wonderful software developer in database domain when he was alive.
 
@@ -12,6 +12,7 @@ Shu-mu joined the company on August 17, 2011 and has been working on database re
 
 Shu-mu has a 6-year-old boy and elderly parents. Shu-mu’s family loves Shu-mu so much. Shu-mu’s sudden demise threw the family into overwhelming pain and despair. As Shu-mu’s friends and colleagues, we will try our best to help Shu-mu’s family to get through the difficult period.
 
-If you know Shu-mu and want to add any story about Shu-mu, please contact us through email `miss-shumu@proton.me`.
-
 Rest in peace, Shu-mu!
+
+### Contact Information
+If you know Shu-mu and want to add any story about Shu-mu, please contact us through email `miss-shumu@proton.me`.
